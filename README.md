@@ -1,1 +1,0 @@
-# ar-iphone-model
